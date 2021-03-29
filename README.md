@@ -4,7 +4,8 @@
 #### and, GreatLearning
 
 
-[For more details on the program go here](https://www.mygreatlearning.com/us/artificial-intelligence/courses/pg-program-online-artificial-intelligence-machine-learning)
+For more details on the program [go here](https://www.mygreatlearning.com/us/artificial-intelligence/courses/pg-program-online-artificial-intelligence-machine-learning)
+
 [or here](https://www.mccombs.utexas.edu/execed/take-a-class/greatlearning)
 
 I am in this program for a few reasons.
